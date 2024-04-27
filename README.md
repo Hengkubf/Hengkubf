@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-# H1 ABOUT ME
+# ABOUT ME
 My name is Pisitchai Srithongrungtip,You can called me Heng. I live in Bangkok with my family. I can speak 2 languages, Thai and English. My hobbies are play game , wake boarding🏂🏂 and playing football⚽️⚽️.
 
 
